@@ -1,1 +1,1 @@
-# khroldmitriy.github.io
+https://khroldmitriy.github.io/khroldmitriy.github.io/cv
